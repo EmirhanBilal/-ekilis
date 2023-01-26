@@ -1,3 +1,3 @@
 # -ekilis
 
-https://emirhanbilal.github.io/-ekilis/
+https://emirhanbilal.github.io/Cekilis/
